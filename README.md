@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Github
 - 📫 How to reach me hypsofteng@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I am 39 young, I have 2 kids one boy and one girl. 
+- ⚡ Fun fact: I am 39 young, I have 2 kids one boy and one girl. I have been married to my husband for 13 years
 
 <!---
 MagdaDut/MagdaDut is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
